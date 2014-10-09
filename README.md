@@ -1,2 +1,2 @@
-Welcome to my GitHub page! There will be content posted her shortly!
+Welcome to my GitHub page! There will be content posted here shortly!
 ============
